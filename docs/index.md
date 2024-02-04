@@ -7,7 +7,3 @@ ceci est une première évolution.
 en voici une seconde
 
 
-
-
-
--u(-u-thttutu)
